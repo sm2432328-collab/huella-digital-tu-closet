@@ -1,1 +1,0 @@
-# huella-digital-tu-closet
